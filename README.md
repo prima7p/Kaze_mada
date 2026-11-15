@@ -1,1 +1,1 @@
-# Kaze_mada!
+# Kaze_mada
