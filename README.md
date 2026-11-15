@@ -1,2 +1,1 @@
 # Kaze_mada
-g
